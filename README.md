@@ -26,7 +26,7 @@ Grab a [**50% discount**](https://magoosh.com/) on your Graduate Management Admi
 
 Why pay full? Click the button below and claim your GMAT discount now!!!
 
-[![Magoosh discount](https://github.com/user-attachments/assets/9db4745a-cf89-4f3e-a5ad-e0b70a18a0a5)
+[![Magoosh discount](https://github.com/user-attachments/assets/e8d5c1b6-2e4a-4849-8a45-fcaeb1f2a296)
 ](https://magoosh.com/)
 With this Magoosh promo deal, you will get:
 
@@ -39,7 +39,7 @@ With this Magoosh promo deal, you will get:
 
 Now, start preparing for GMAT, GRE, SAT, or any other exam for [**FREE**](https://magoosh.com/) with this Magoosh discount deal.
 
-[![Magoosh FREE resources](https://github.com/user-attachments/assets/6290c3b5-70b8-4119-a840-a6a7f1ba757d)
+[![Magoosh FREE resources](https://github.com/user-attachments/assets/b2795361-6031-4afd-aa83-c81ea7176fa6)
 ](https://magoosh.com/)
 
 Free Prep Resources to Help You Study:
@@ -59,31 +59,31 @@ Free Prep Resources to Help You Study:
 
 Valid only till 19th May 2025, so hurry, grab it before it’s gone. Click the discount button below now.
 
-![Magoosh promo code](https://github.com/user-attachments/assets/b0176f38-8f1f-46dc-b858-a1f17cfa8b8d)
-
+[![Magoosh promo code](https://github.com/user-attachments/assets/795265b0-4263-4bee-a893-79d347588851)
+](https://magoosh.com/)
 ## How to Apply Magoosh Coupon Codes?
 
 Follow these **5 simple methods** to claim your Magoosh coupon code.
 
 **Step 1:** Visit the Magoosh official website with this [**discount link**](https://magoosh.com/).
 
-![Magoosh official website](https://github.com/user-attachments/assets/5638533d-0eb7-4eba-b9f7-4e2e37111c55)
+![Magoosh official website](https://github.com/user-attachments/assets/4b66ba88-30d9-4cf4-8c63-6825678bea69)
 
 **Step 2:** Choose a preparation course that you want to excel in.
 
-![choose a prep course](https://github.com/user-attachments/assets/24c99104-593b-4fa9-bfb4-432178580650)
+![choose a prep course](https://github.com/user-attachments/assets/eeadd051-13da-4f4c-86f4-c485ebf124da)
 
 **Step 3: Choose a plan** that best suits your needs.
 
-![choose a plan (2)](https://github.com/user-attachments/assets/16dc03e4-b7a7-4e1c-8779-3f67a1acf501)
+![choose a plan](https://github.com/user-attachments/assets/664e1c0c-7b74-4cbc-98cf-a8db6483da7d)
 
 **Step 4: Create an account** by providing the necessary details, and here you can choose to pay in full or in installments.
 
-![create account](https://github.com/user-attachments/assets/e2810139-debd-48ea-a012-47d8743d227e)
+![create account](https://github.com/user-attachments/assets/ff682da5-d42e-4d34-bac8-1066b3e63113)
 
 **Step 5:** Finally, **enter your payment details**, and enter the promo code of your choice inside the box as shown in the image below to see the price drop.
 
-![enter payment details](https://github.com/user-attachments/assets/05060ae9-cdbe-49d1-a7e3-e8434c7c4926)
+![enter payment details](https://github.com/user-attachments/assets/27f0b803-2f00-4f88-965a-484a7ef3b83d)
 
 Congrats! You have successfully claimed your Magoosh coupon deal.
 
@@ -142,13 +142,13 @@ Let’s get real for a moment. Behind every coupon code is a student with a drea
 
 Cindy L. Says–
 
-![Magoosh review](https://github.com/user-attachments/assets/6b3f06e0-9239-4b1d-abf8-eb60a1491069)
+![Magoosh review](https://github.com/user-attachments/assets/bbf62f90-8f10-459b-8305-f8d57eb35bdc)
 
 I’ve always loved teaching and wanted to work in international education policy, but my initial GRE scores—especially math—were too low. I’m not a numbers person, so I needed something flexible and practice-heavy. Magoosh was perfect: affordable, self-paced, and packed with questions. The team was super helpful, too—when my plan was about to expire right before my test, they extended it without hesitation. My scores ended up way above average, and now I’m teaching in Hong Kong while applying to grad schools. Magoosh truly made it possible!
 
 **Source: [Trustpilot](https://www.trustpilot.com/users/67c8e1f1963acd79324e0bd1)**
 
-![trustpilot](https://github.com/user-attachments/assets/d0d64b62-1745-40f9-ac53-c955a9e59da0)
+![trustpilot](https://github.com/user-attachments/assets/c60e4dc2-88b0-4225-9f0e-8a52a2ad1526)
 
 I scored a 321 on my first GRE but needed to boost my Quant score fast. I turned to Magoosh and, in just 3 weeks, jumped to a 339 (170 Q, 169 V)! Their clear videos, smart analytics, and targeted practice made it easy to focus on what I needed. Huge thanks to Magoosh—couldn’t have done it without you!
 
