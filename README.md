@@ -10,7 +10,7 @@ But before that, let’s dive in and see what discount deals are available on Ma
 
 Claim [**80% off**](https://magoosh.com/) on your annual subscription with Magoosh and **save up to $500** annually with this coupon deal.
 
-[![Magoosh coupon code](https://github.com/user-attachments/assets/4450f2aa-8334-4ad5-be77-c1d11f2c3dee)
+[![Magoosh coupon code](https://github.com/user-attachments/assets/650bb8b9-449c-4fbe-8530-2e24a0585285)
 ](https://magoosh.com/)
 
 With this magoosh coupon code, you will get access to:
