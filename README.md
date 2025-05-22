@@ -22,7 +22,7 @@ With this magoosh coupon code, you will get access to:
 
 ## Magoosh Promo Code | Save 50% on GMAT
 
-Grab a [**50% discount**](https://magoosh.com/) on your Graduate Management Admission Test(GMAT) test prep with this GMAT coupon code.
+Grab a [**50% discount**](https://imp.i154272.net/YgRzPm) on your Graduate Management Admission Test(GMAT) test prep with this GMAT coupon code.
 
 Why pay full? Click the button below and claim your GMAT discount now!!!
 
